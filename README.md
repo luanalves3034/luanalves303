@@ -1,3 +1,7 @@
+# VERSÃO 3
+
+![SUKUNA](https://i.pinimg.com/originals/82/9c/15/829c15633cef94444c681910dfedd23b.gif)
+
 # luanalves303
 
 #### Sobre a atividade, você deverá considerar o seguinte assunto:
